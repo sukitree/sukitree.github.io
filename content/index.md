@@ -3,4 +3,4 @@ title: Home
 ---
 [[About]] [[Notes]] [[Contact]] 
 
-Hi I'm Sukeerthi. 
+Hi, I'm Sukeerthi :)
