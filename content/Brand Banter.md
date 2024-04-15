@@ -1,0 +1,1 @@
+This is a blog I started writing a while ago, reposting old ones and adding new ones over here :)
