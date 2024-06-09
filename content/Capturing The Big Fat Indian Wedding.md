@@ -1,6 +1,6 @@
 This week, I want to talk about a brand that I absolutely adore. No out-of-the-box growth moves, crazy campaigns or anything of that sort. Just a brand that grew to what it is today because of pure passion and talent. A brand that I’ve been reading about since I was 14 years old.
+![[Pasted image 20240608194733.png]]
 
-![](https://miro.medium.com/v2/resize:fit:1400/1*JfMCNc49fF8sVhgbno43Yg.png)
 
 **Stories by Joseph Radhik.** To tell you about this brand, I need to tell you about its founder, who’s the literal heart and soul of this story.
 
